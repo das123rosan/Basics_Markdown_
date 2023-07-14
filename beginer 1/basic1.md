@@ -1,0 +1,8 @@
+<center>
+
+ ## BASIC SYNTAXT    
+
+ </center>  
+
+***  
+---
